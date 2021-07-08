@@ -91,7 +91,6 @@
 
 ![Funabashi-Andersen-Park_44](https://user-images.githubusercontent.com/20723919/107168369-a1acd400-69fe-11eb-93a4-5ed4d5b749dd.jpg)
 
-
 ![Funabashi-Andersen-Park_45](https://user-images.githubusercontent.com/20723919/107168371-a2de0100-69fe-11eb-969f-c6e926ac123e.jpg)
 
 ![Funabashi-Andersen-Park_46](https://user-images.githubusercontent.com/20723919/107168374-a3769780-69fe-11eb-882b-09cca2e23d0c.jpg)
@@ -131,5 +130,3 @@
 ![Funabashi-Andersen-Park_63](https://user-images.githubusercontent.com/20723919/107168408-ab363c00-69fe-11eb-8e61-97b6812b7ede.jpg)
 
 ![Funabashi-Andersen-Park_64](https://user-images.githubusercontent.com/20723919/107168409-abced280-69fe-11eb-9b6f-4de336c8172d.jpg)
-
-![Funabashi-Andersen-Park_65](https://user-images.githubusercontent.com/20723919/107168412-ac676900-69fe-11eb-8dc9-4a38423e551e.jpg)
